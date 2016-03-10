@@ -16,7 +16,7 @@ WMFO DJs are free to air any approved PSA on their shows, so for maximum publici
 
 You can send your PSA to WMFO as follows:
 
-Edward Beuchert
+ Edward Beuchert
  Public Service Director
  WMFO 91.5 FM
  P.O. Box 53065
